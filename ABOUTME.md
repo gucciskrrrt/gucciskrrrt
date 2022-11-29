@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gucciskrrrt
-- 👀 I’m interested in python, kitesurfing
+- 👀 I’m interested in python, kitesurfing, wingsurfing, SUP - boarding.
 - 🌱 I’m currently learning python & DS
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me @gucciskrrrt
